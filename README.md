@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **charukeerthi.nb@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1DTPGPwoycc1O6C6bY-RMQDMVkyO3Xx8Q/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1pHYCLZ7MQ_OAZnyLiju_d5SJ7ElbTpYp/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
